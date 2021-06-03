@@ -1,0 +1,1 @@
+NIM : 1811500007 NAMA : Deo P. Shindo Kel : TI6J
